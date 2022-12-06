@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kalus48
-- 👀 I’m interested in CyberSecuirty
+- 👀 I’m interested in CyberSecurity
 - 🌱 I’m currently learning Mathematics
 - 💞️ I’m looking to collaborate on ?
 - 📫 How to reach me ?
